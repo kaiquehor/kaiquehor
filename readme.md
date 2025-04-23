@@ -29,7 +29,7 @@ Gosto de transformar café em código e bugs em features (ou quase isso 😅)
 
 ## 🤙 Bora trocar ideia?
 
-- 📫 Me chama no email: lopeskaique0532@gmail.com  
+- 📫 Me chama no email: lopeskaique053@gmail.com  
 - 💼 [LinkedIn](https://www.linkedin.com/in/kaiquehor)
 
 ---
